@@ -8,4 +8,4 @@ A 3rd year BSIT student from Central Philippine University
 	I like to play League of Legends.
 	I like to sleep.
 	I loved to read books and explore ideas.
-	I'm helpful. :<
+	I'm helpful. :)
